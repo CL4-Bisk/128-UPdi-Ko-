@@ -1,3 +1,3 @@
-# 128-final-project
+# 128-UPdi Ko!
 
 ## readme mwehehe
